@@ -34,6 +34,8 @@ I'll try to make this short 'n sweet, so let's go ahead!
 
 -JJBA and DSMP fandoms* (I have nothing against JoJo fans, I just don't want to interact with the fandom. I do have a lot against the DSMP fandom though, and would prefer to just stay away from that fandom, apologies.)
 
+I can and will hide you if you wont leave me alone when I've asked you to. I don't mean to sound harsh, and I'll tell you beforehand if I do.
+
 
 *JJBA standing for JoJo's Bizarre Adventure and DSMP standing for Dream SMP, for the uninitiated.
 
