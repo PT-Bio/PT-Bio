@@ -25,5 +25,4 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 -You're trying to date (listen the amount of times this has happened is huge and it's so weird, it's a pony game bro i don't wanna kiss)
 
 
-
-Thank you for reading! You don't need to tell me if you did read it and gonna be honest, i prefer if you didn't say, but i appreciate it :)
+aaand that's pretty much it. not gonna include an interests list because if i did, i'd be here for 2 hours haha
