@@ -11,7 +11,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that
 
--I feel like I need to emphasise this one: Do not kiss or flirt with me, ever! it makes me pretty uncomfortable and 9 times out of 10 i'll just end up hiding you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
+-I feel like I need to emphasise this one: Do not kiss or flirt with me, ever! No exceptions! it makes me pretty uncomfortable and 9 times out of 10 i'll just end up hiding you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
 
 -I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
 
