@@ -9,7 +9,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
 
--If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that *looks at annoying deltarune fans who freak out about my skin being spamton*
+-If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
 
 -I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** No exceptions! it makes me pretty uncomfortable and I will most likely immediately hide you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
 
