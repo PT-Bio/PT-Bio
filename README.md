@@ -5,7 +5,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 --General Info--
 
--My pronouns are He/Him! Please refer to me with them regardless of who my character is.
+-My pronouns are He/Him! I also occassionally use and am comfotable with using It/Its. Please refer to me with them regardless of who my character is.
 
 -I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
 
