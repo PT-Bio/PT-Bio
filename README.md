@@ -13,7 +13,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
 
--I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** No exceptions! it makes me pretty uncomfortable and I will most likely immediately hide you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
+-I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** Don't do it if you like the character that my skin is, don't do it in roleplay, just don't do it. No exceptions. It makes me really uncomfortable and I will most likely immediately hide you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
 
 -I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
 
@@ -32,7 +32,9 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 (JJBA = JoJo's Bizarre Adventure, DSMP = Dream SMP)
 
-- People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
+-People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
+
+-This one is fandom specific, but by god, if you are a DST fan who ships Wendy and Wilson, stay the absolute fuck away from me. I don't think I need to explain why shipping a 30 year old with someone who isn't even 10 yet is really gross.
 
 
 If you start really bugging me, I'll probably just hide you or something. That's what the feature's for, after all!
