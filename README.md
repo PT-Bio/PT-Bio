@@ -1,11 +1,11 @@
 *Hello World!*
 
-This repo is specifically made for PonyTown! If you're not from there, this won't make sense! Also, I'd prefer if this repo wasn't starred, but alas, i can't stop you if you do star it.... (it also used to be longer but i cut it in half)
+This repo is specifically made for PonyTown! If you're not from there, this won't make sense! Also, I'd prefer if this repo wasn't starred, but alas, i can't stop you if you do star it....
 
 
 --General Info--
 
--My pronouns are He/Him! I also occassionally use and am comfotable with using It/Its. Please refer to me with them regardless of who my character is.
+-My pronouns are He/Him and It/Its. Please refer to me with them regardless of who my character is.
 
 -I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
 
@@ -36,8 +36,60 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -This one is fandom specific, but by god, if you are a DST fan who ships Wendy and Wilson, stay the absolute fuck away from me. I don't think I need to explain why shipping a 30 year old with someone who isn't even 10 yet is really gross.
 
+-People who bash neopronouns
+
 
 If you start really bugging me, I'll probably just hide you or something. That's what the feature's for, after all!
 
 
-aaand that's pretty much it. not gonna include an interests list because if i did, i'd be here for 2 hours haha
+--Interests (you may choose to stop reading here if you'd like)--
+(ones that are in bold are special interests, ones that are in italics are current hyperfixations!)
+
+-**Don't Starve/Together**
+
+-*Garfield* (jon armbunkle)
+
+-*Super Mario Bros*.
+
+-Luigi's Mansion (lugigi <3)
+
+-*Deltarune*
+
+-Undertale
+
+-**My Little Pony**
+
+-A Year Without A Santa Claus (funny elemental bros)
+
+-**Team Fortress 2 and VALVe games in general**
+
+
+--Characters I Like/Comfort Characters--
+(names in bold are characters that bring me comfort)
+
+-**Wilson P. Higgsbury** (DST)
+
+-Maxwell Carter (DST)
+
+-**Jon Arbuckle** (Garfield) (listen i know he's kinda pathetic but i just really like the guy)
+
+-**Luigi** (SMB/LM)
+
+-**Waluigi** (SMB) (YOU EXPECTED MARIO? TOO BAD! WALUIGI TIME!) (astronomically funnier than kono dio da)
+
+-**Spamton G. Spamton** (Deltarune)
+
+-Papyrus (Undertale)
+
+-Discord (MLP)
+
+-Fluttershy (MLP)
+
+-Applejack (MLP)
+
+-Derpy (MLP)
+
+-**Scout** (TF2)
+
+
+Thank you for reading this all the way if you have! I appreciate it a lot!
