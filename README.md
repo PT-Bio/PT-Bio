@@ -9,6 +9,8 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
 
+-I may not respond to crowning or compliments because of said shyness, but please know that I do appreciate it a lot :)
+
 -If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
 
 -I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** No exceptions! it makes me pretty uncomfortable and I will most likely immediately hide you. Please dude, I just wanna play funny pony game, not be your boyfriend, get outta here
@@ -26,9 +28,11 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -You're trying to date (listen the amount of times this has happened is huge and it's so weird, it's a pony game bro i don't wanna kiss)
 
--JJBA fandom and over obsessive DSMP stans (JJBA fans are just generally annoying is all, that's it lol. DSMP stans, however... yikes no thanks...)
+-JJBA fandom and over obsessive DSMP stans (JJBA fans and... *most* anime fans, actually, are just generally annoying is all, that's it lol. DSMP stans, however... yikes no thanks...)
 
 (JJBA = JoJo's Bizarre Adventure, DSMP = Dream SMP)
+
+- People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
 
 
 If you start really bugging me, I'll probably just hide you or something. That's what the feature's for, after all!
