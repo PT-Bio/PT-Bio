@@ -15,7 +15,11 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** Don't do it if you like the character that my skin is, don't do it in roleplay, just don't please. No exceptions. It makes me really uncomfortable and I will most likely immediately hide you. Dude, I just wanna play funny pony game, not be your boyfriend, get outta here
 
+- Please don't copy my skins, that's pretty not cash money of you to do
+
 -I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
+
+-My main OC is a little guy with an old computer monitor running Windows 95 for a head, and it wears a brightly coloured 90s style jacket with a cord as a tail. I haven't decided on a name for him yet... It's very loosely inspired by Spamton!
 
 
 --DNI (Do Not Interact)--
@@ -28,9 +32,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 -You're trying to date (listen the amount of times this has happened is huge and it's so weird, it's a pony game bro i don't wanna kiss)
 
--JJBA fandom and over obsessive DSMP stans (JJBA fans and... *most* anime fans, actually, are just generally annoying is all, that's it lol. DSMP stans, however... yikes no thanks...)
-
-(JJBA = JoJo's Bizarre Adventure, DSMP = Dream SMP)
+-Overly toxic anime fans (or any overly toxic fans of *anything,* really.)
 
 -People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
 
