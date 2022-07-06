@@ -5,93 +5,93 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 --General Info--
 
--My pronouns are He/Him and It/Its. Please refer to me with them regardless of who my character is.
+- My pronouns are He/Him and It/Its. Please refer to me with them regardless of who my character is.
 
--I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
+- I'm very shy, and I'd usually like to be left alone. Nothin' personal, just not a very social guy. Please don't ask or beg me to be your friend.
 
--I may not respond to crowning or compliments because of said shyness, but please know that I do appreciate it a lot :)
+- I may not respond to crowning or compliments because of said shyness, but please know that I do appreciate it a lot :)
 
--If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
+- If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
 
--I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** Don't do it if you like the character that my skin is, don't do it in roleplay, just don't please. No exceptions. It makes me really uncomfortable and I will most likely immediately hide you. Dude, I just wanna play funny pony game, not be your boyfriend, get outta here
+- I feel like I need to emphasise this one: **Do not kiss or flirt with me, ever!** Don't do it if you like the character that my skin is, don't do it in roleplay, just don't please. No exceptions. It makes me really uncomfortable and I will most likely immediately hide you. Dude, I just wanna play funny pony game, not be your boyfriend, get outta here
 
 - Please don't copy my skins, that's pretty not cash money of you to do
 
--I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
+- I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
 
--My main OC is a little guy with an old computer monitor running Windows 95 for a head, and it wears a brightly coloured 90s style jacket with a cord as a tail. I haven't decided on a name for him yet... It's very loosely inspired by Spamton!
+- My main OC is a little guy with an old computer monitor running Windows 95 for a head, and it wears a brightly coloured 90s style jacket with a cord as a tail. I haven't decided on a name for him yet, nor have I fully developed his personality... It's very loosely inspired by Spamton!
 
 
 --DNI (Do Not Interact)--
 
--If you're homophobic, transphobic, racist, ableist, all that jazz.
+- If you're homophobic, transphobic, racist, ableist, all that jazz.
 
--If you're only talking to start drama over something.
+- If you're only talking to start drama over something.
 
--If you're advertising a roleplay or something
+- If you're advertising a roleplay or something
 
--You're trying to date (listen the amount of times this has happened is huge and it's so weird, it's a pony game bro i don't wanna kiss)
+- You're trying to date (listen the amount of times this has happened is huge and it's so weird, it's a pony game bro i don't wanna kiss)
 
--Overly toxic anime fans (or any overly toxic fans of *anything,* really.)
+- Overly toxic anime fans (or any overly toxic fans of *anything,* really.)
 
--People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
+- People who fake having a "touch trigger" or Haphephobia, Disassociative Identity Disorder, psychosis, any mental illness/disorder really. You're not cool for faking these, and I certainly don't want to talk to you.
 
--This one is fandom specific, but by god, if you are a DST fan who ships Wendy and Wilson, stay the absolute fuck away from me. I don't think I need to explain why shipping a 30 year old with someone who isn't even 10 yet is really gross.
-
--People who bash neopronouns
+- People who bash neopronouns
 
 
 If you start really bugging me, I'll probably just hide you or something. That's what the feature's for, after all!
 
 
 --Interests (you may choose to stop reading here if you'd like)--
+
 (ones that are in bold are special interests, ones that are in italics are current hyperfixations!)
 
--**Don't Starve/Together**
+- **Don't Starve/Together**
 
--*Garfield* (jon armbunkle)
+- *Garfield* (jon armbunkle)
 
--*Super Mario Bros*.
+- *Super Mario Bros*.
 
--Luigi's Mansion (lugigi <3)
+- Luigi's Mansion (lugigi <3)
 
--*Deltarune*
+- *Deltarune*
 
--Undertale
+- Undertale
 
--**My Little Pony**
+- **My Little Pony**
 
--A Year Without A Santa Claus (funny elemental bros)
+- A Year Without A Santa Claus (funny elemental bros)
 
--**Team Fortress 2 and VALVe games in general**
+- **Team Fortress 2 and VALVe games in general**
 
 
 --Characters I Like/Comfort Characters--
-(names in bold are characters that bring me comfort)
 
--**Wilson P. Higgsbury** (DST)
+(names in bold are characters that bring me comfort!)
 
--Maxwell Carter (DST)
+- **Wilson P. Higgsbury** (DST)
 
--**Jon Arbuckle** (Garfield) (listen i know he's kinda pathetic but i just really like the guy)
+- Maxwell Carter (DST)
 
--**Luigi** (SMB/LM)
+- **Jon Arbuckle** (Garfield) (listen i know he's kinda pathetic but i just really like the guy)
 
--**Waluigi** (SMB) (YOU EXPECTED MARIO? TOO BAD! WALUIGI TIME!) (astronomically funnier than kono dio da)
+- **Luigi** (SMB/LM)
 
--**Spamton G. Spamton** (Deltarune)
+- **Waluigi** (SMB) (YOU EXPECTED MARIO? TOO BAD! WALUIGI TIME!) (astronomically funnier than kono dio da)
 
--Papyrus (Undertale)
+- **Spamton G. Spamton** (Deltarune)
 
--Discord (MLP)
+- Papyrus (Undertale)
 
--Fluttershy (MLP)
+- Discord (MLP)
 
--Applejack (MLP)
+- Fluttershy (MLP)
 
--Derpy (MLP)
+- Applejack (MLP)
 
--**Scout** (TF2)
+- Derpy (MLP)
+
+- **Scout** (TF2)
 
 
 Thank you for reading this all the way if you have! I appreciate it a lot!
