@@ -19,7 +19,9 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 - I'm okay with being invited to parties or roleplays as long as they're not super serious, i like a little bit of trolling in my roleplays :D
 
-- My main OC is a little guy with an old computer monitor running Windows 95 for a head, and it wears a brightly coloured 90s style jacket with a cord as a tail. I haven't decided on a name for him yet, nor have I fully developed his personality... It's very loosely inspired by Spamton!
+- My main OC is a little guy with an old computer monitor running Windows 95 for a head, and it wears a brightly coloured 90s style jacket with a cord as a tail. His name is Kai, and it speaks with a > symbol at the beginning of every sentence, kinda like a command log. It's very loosely inspired by Spamton!
+
+- derrogatory against jojo fans (only kidding don't cancel me)
 
 
 --DNI (Do Not Interact)--
