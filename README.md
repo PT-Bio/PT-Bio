@@ -13,7 +13,7 @@ This repo is specifically made for PonyTown! If you're not from there, this won'
 
 - I may not respond to crowning or compliments because of said shyness, but please know that I do appreciate it a lot :)
 
-- If my skin is a fictional character, don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because I'm not the character dude :/ I'm a real ass guy and it's pretty annoying when people do that. *Looks at annoying deltarune fans who freak out about my skin being spamton*
+- If my skin is a fictional character, please don't go up all like "OMG IT'S [insert character here] FBHJVDNFRUJ" because it's mildly irritating and i don't know about you, but i find it pretty unsettling when people pretend i'm their friend because my skin was a character they like. and also it's just... wow someone has a skin of a character in a video game that's so freaky (jokes aside please just don't bother me about it thankyou)
 
 - Please don't copy my skins, that's pretty not cash money of you to do
 
